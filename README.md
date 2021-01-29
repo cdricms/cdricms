@@ -1,4 +1,4 @@
-### Smoqu 🥘
+### Smoqu 🔥
 
 #### Known programming languages and frameworks:
 
